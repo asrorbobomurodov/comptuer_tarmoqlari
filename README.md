@@ -1,0 +1,1 @@
+# comptuer_tarmoqlari
